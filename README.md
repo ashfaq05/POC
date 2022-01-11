@@ -1,2 +1,2 @@
 #POC
-![alt text](https://dz2cdn1.dzone.com/storage/temp/11212094-mvp-vs-prototype-vs-poc.png)
+![alt text](https://m.foolcdn.com/media/the-blueprint/images/Proof_of_Concept_Your_Complete_Guide_to_Its_Wh.width-800_A0A0gnh.png)
